@@ -8,7 +8,7 @@
 
 ### Connect with me:
 
-[<img align="left" alt="tomass" width="36px" src="https://image.flaticon.com/icons/svg/179/179330.svg"/>][linkedin]
+[<img align="left" alt="tomass" width="64px" src="https://image.flaticon.com/icons/svg/179/179330.svg"/>][linkedin]
 
 <br />
 
