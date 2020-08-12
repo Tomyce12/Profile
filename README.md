@@ -1,10 +1,9 @@
-# Hi Tomas here! 🧙‍♂️
+# Hi, Tomas here! 🧙‍♂️
 
 ## I am Junior Web/App Developer!
 
 -   🤣Learning everything and everytime
--   🔧Addicted to technologies currently focusing eye on Full-Stack
--   👨‍🚀First Goal as Junior Developer: to join any dynamic, innovative, and collaborative team.
+-   🔧Addicted to technologies, currently focusing on Full-Stack
 
 ### Connect with me:
 
