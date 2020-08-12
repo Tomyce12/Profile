@@ -1,4 +1,4 @@
-### Hi there! Tomas here! 🧙‍♂️
+# Hi Tomas here! 🧙‍♂️
 
 ## I am Junior Web/App Developer!
 
