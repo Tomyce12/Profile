@@ -1,7 +1,7 @@
 # Hi, Tomas here! 🧙‍♂️
 
-## I am Junior Web/App Developer!
-
+**I am Junior Full-Stack Developer:**
+-   👨‍💻Still learning...
 -   🤣Learning everything and everytime
 -   🔧Addicted to technologies, currently focusing on Full-Stack
 
