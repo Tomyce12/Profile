@@ -5,7 +5,7 @@
 -   🤣Learning everything and everytime
 -   🔧Addicted to technologies, currently focusing on Full-Stack
 
-Currently looking for open positions !✌
+Looking for open positions (internships welcomed too) !✌
 
 ### Connect with me:
 
