@@ -1,7 +1,7 @@
 # Hi, Tomas here! 🧙‍♂️
 
 **I am Junior Full-Stack Developer:**
--   📚Love to reading books
+-   📚Love to read books
 -   🤣Learning everything and everytime
 -   🔧Addicted to technologies, currently focusing on Full-Stack
 
