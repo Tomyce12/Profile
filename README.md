@@ -3,9 +3,9 @@
 **I am Junior Developer:**
 -   📚Love to read books
 -   🤣Learning everything and everytime
--   🔧Addicted to technologies, currently focusing on Full-Stack
+-   🔧Addicted to technologies.
 
-Looking for open positions (internships welcomed too) !✌
+Looking for open positions (internships are welcomed too) !✌
 
 ### Connect with me:
 
