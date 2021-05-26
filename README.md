@@ -5,8 +5,6 @@
 -   🤣Learning everything and everytime
 -   🔧Addicted to technologies.
 
-Looking for open positions (internships are welcomed too) !✌
-
 ### Connect with me:
 
 [<img align="left" alt="tomass" width="64px" src="https://image.flaticon.com/icons/svg/179/179330.svg"/>][linkedin]
